@@ -27,7 +27,8 @@ sections:
       absent.
 
 
-      **Please define fixit pain cream.**
+      **Please define** [**fixit pain
+      cream**](https://www.herbtop.in/product/fixit-pain-relief-cream-review/)**.**
 
 
       Fixit topical treats arthritic joint pain and inflammation naturally. This
@@ -46,22 +47,17 @@ sections:
       discomfort.
 
 
-
       *   Haemoglobin and white blood cells increase after use.
 
 
-
       *   Daily use improves capillary and blood vessel permeability.
-
 
 
       *   Indian orthopaedists voted it the best new back and joint pain
       treatment.
 
 
-
       *   The official website lists it at an unbelievable price.
-
 
 
       **Cream Fixit relieves pain Forum comments and opinions**
